@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Mercury晓铎
+- 👋 Hi, I’m @Mercury
 
